@@ -7,3 +7,10 @@ I am going to sleep , because you are not with me !
 
 ![Hello](https://github.com/Nouribaher/NouryWelcome/blob/main/Screenshot%20(4150).png) 
 
+Hej all
+
+Welcome to learn Azuer DenOpes today 2021/11/02
+
+//Nouri Baher
+
+
