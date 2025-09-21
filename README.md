@@ -9,7 +9,7 @@ I am going to sleep , because you are not with me !
 
 Hej all
 
-Welcome to learn Azuer DenOpes today 2021/11/02
+Welcome to learn  Azure DevOps today 2021/11/02
 
 //Nouri Baher
 
